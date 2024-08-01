@@ -1,4 +1,4 @@
-# ✦.Xem.Phim.!!✦ — "Lật Mặt 7 Một Điều Ước"【2024】FulL-4K Vietsub [[HD~1080p]]
+# ✦.Xem.Phim.!!✦ — "Lật Mặt 7 Một Điều Ước"【2024】FulL-4K Vietsub [[ʜᴅ~1080p]]
 
 17 𝓂𝑜𝓂𝑒𝓃𝓉 𝒶𝑔𝑜 - Xem phim mới Lật Mặt 7: Một Điều Ước online miễn phí chất lượng cao với phụ đề tiếng việt | Lật Mặt 7: Một Điều Ước (2024) Phim online thuyết minh vietnam full hd 4k.
 
